@@ -1,1 +1,1 @@
-https://Manju227.github.io/resme/resume.html
+https://manju227.github.io/resume/
